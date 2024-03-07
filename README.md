@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gamebuilder12
-- 👀 I’m interested in reading book.
+- 👀 I’m interested in reading books.
 - 🌱 I’m currently learning cybersecurity, game design, and a few other htings
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me benjaminmarkham24@easttroy.k12.wi.us for school communications.
